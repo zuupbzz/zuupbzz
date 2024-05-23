@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-### Boas vindas ao meu perfil :blue_heart
+### Boas vindas ao meu perfil :zuupbzz
 
 Meu nome é Livia Ambrosio
 
@@ -12,4 +12,4 @@ Meu nome é Livia Ambrosio
 
 @li.tomazetto@gmail.com
 
-![descrição do GIF](https://media1.tenor.com/m/7j95md7mkvcAAAAC/beyonce-heated.gif)
+![descrição do GIF](https://media1.tenor.com/m/7j95md7mkvcAAAAC/beyonce-heated.gif https://media.tenor.com/YGS-Rh-2mP0AAAAM/zatanna-zatanna-zatara.gif  https://media.tenor.com/qUGyElmVty8AAAAM/realartemis2.gif  )
